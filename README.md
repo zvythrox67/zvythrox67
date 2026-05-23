@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧠​ High School student aspiring in Biomedical Engineering<br>​🌌​ I create themed desktop apps, websites, robots, games, and Human-Computer Interactions.<br>
+🧠​ High School student aspiring in Biomedical Engineering<br>​🌌​ I create themed desktop apps, websites, and games.<br>
 
 
 ## 🌐 Socials:
