@@ -1,5 +1,5 @@
 # 💫 About Me:
-High School student<br>​I create themed desktop apps, websites, and games.
+High School student<br>​I create themed desktop apps, websites, games, and biotech projects.
 
 
 ## 🌐 Socials:
