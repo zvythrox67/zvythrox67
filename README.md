@@ -1,5 +1,5 @@
 # 💫 About Me:
-High School Student aspiring in Engineering
+High School Student aspiring in Engineering.
 
 
 # 💻 Tech Stack:
